@@ -1,3 +1,3 @@
 # Excel-Project
 Business Analytics &amp; Statistics
-"C:\Users\Waiez\OneDrive\Desktop\excel\Business Analytics & Stats.xlsx"
+EMAIL ME FOR EXCEL REGRESSION ANALYSIS AND RAW DATA
